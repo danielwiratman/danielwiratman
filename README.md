@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @danielwiratman
+- 👀 I’m interested in all sort of stuff
+- 🌱 I’m currently learning more and more
+- 💞️ I’m looking to collaborate on any interesting projects
+- 📫 How to reach me by email at danielwiratman@gmail.com
